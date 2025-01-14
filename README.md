@@ -1,1 +1,0 @@
-# crowdfunded-real-estate-nft
